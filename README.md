@@ -1,6 +1,6 @@
 # Sarkari-Result-10-2-Latest-Job
-Sarkari Result 10+2 Latest Job
-
+# [Sarkari Result 10+2 Latest Job
+](https://sarkarieducation.net/sarkari-result-102-latest-job-2024-latest-update/)
 
 ## Sarkari Result 10+2 Latest Job Opportunities: Your Ultimate Guide to Government Careers
 
